@@ -1,2 +1,0 @@
-# SENG-207-PROJECT
-Elvis-Ford/Elvis-Ford-SENG-207-PROJECT
